@@ -1,3 +1,4 @@
 # hello-hello
 Digital halo halo. 
-Halo halo has many things mixed in and it is tasty. 
+Halo halo has many things mixed in, a dairy free version is ideal.
+That is all. 
